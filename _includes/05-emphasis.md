@@ -1,0 +1,1 @@
+I am a **multilingual** Marketing Analyst, who discovered a new passion for _coding_ and now I am learning new skills and programming languages like _**HTML5**_, _**CSS3**_, _**JavaScript**_, ... :+1:
