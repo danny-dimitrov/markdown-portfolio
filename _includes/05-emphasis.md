@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I am a **multilingual** Marketing Analyst, who discovered a new passion for _coding_ and now I am learning new skills and programming languages like _**HTML5**_, _**CSS3**_, _**JavaScript**_, ... :+1:
